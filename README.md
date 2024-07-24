@@ -18,7 +18,7 @@ You'll find me lost in the pages of books or exploring the vast expanse of tech 
 Excited about the future! My journey doesn't stop here. I'm eagerly looking forward to diving into the fascinating realms of AI/ML and Blockchain technology.
 
 ### Let's Connect! 🌐
-Feel free to reach out, collaborate, or just chat about all things tech! Connect with me on [LinkedIn](https://www.linkedin.com/in/yourprofile) or follow me on [Twitter](https://twitter.com/yourhandle).
+Feel free to reach out, collaborate, or just chat about all things tech! Connect with me on [LinkedIn](https://www.linkedin.com/in/zafar-gayas/) or follow me on [https://x.com/ZafarGayas3101](https://twitter.com/yourhandle).
 
 ### Thanks for Stopping By! 🙌
 Pull up a virtual chair, grab a cup of coffee, and let's embark on this coding adventure together!
